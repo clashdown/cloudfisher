@@ -1,5 +1,5 @@
 # 渔云机场官网最新地址+优惠码
-cloudfisher（渔云）机场官网最新地址：[cloudfisher.one](https://cloudfisher.one/web/#/login?code=Xrd2NWzo)
+cloudfisher（渔云）机场官网最新地址：[cloudfisher.one](https://c.jichangs.com/fisher)
 
 ## 渔云机场简介
 
